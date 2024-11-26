@@ -10,7 +10,7 @@
   we offer high-quality and engaging fantasy sports software aimed at the diverse gaming audience in the USA.
   If you need any help in fantasy sports software solution contact BR Softech Team:-
   
-  Visit Here:- [Fantasy Sports Software Development]([url](https://www.brsoftech.com/fantasy-sports-software-development.html))
+  Visit Here:- [Fantasy Sports Software Development](https://www.brsoftech.com/fantasy-sports-software-development.html)
   
   Quote for Free Demo:-
   
